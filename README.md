@@ -1,1 +1,0 @@
-# q and a site
